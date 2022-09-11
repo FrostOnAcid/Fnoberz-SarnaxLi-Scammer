@@ -8,5 +8,6 @@ The last fact that is gonna prove that hes Sarnax are his commits... Just go to 
 This kid is retarded af
 
 Anyways, my advice:
-#DONT BUY ANYTHING FROM THIS STUPID KID!
+
+# DONT BUY ANYTHING FROM THIS STUPID KID!
 
